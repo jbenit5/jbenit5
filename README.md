@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+<div>
+  🤔
+  🤗
+  (☞ﾟヮﾟ)☞ 💻 ☜(ﾟヮﾟ☜)
+  (⌐■_■)
+</div>
+<div>
+  Hello Everyone!
+</div>
+    
