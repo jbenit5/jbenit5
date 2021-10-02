@@ -16,8 +16,11 @@ Here are some ideas to get you started:
 -->
 <div>
   🤔
+  <br>
   🤗
+  <br>
   (☞ﾟヮﾟ)☞ 💻 ☜(ﾟヮﾟ☜)
+  <br>
   (⌐■_■)
 </div>
 <div>
